@@ -43,9 +43,9 @@ We’d love to hear from you! Whether you have questions about our platform, nee
 ### Headquarters
 
 **ClrSlate Tech Labs Private Limited**  
-WeWork Vaishnavi Signature
-Outer Ring Road, Bellandur
-Bengaluru, Karnataka 560103
+WeWork Vaishnavi Signature  
+Outer Ring Road, Bellandur  
+Bengaluru  
 
 ---
 
